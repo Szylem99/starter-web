@@ -12,6 +12,8 @@ Pozdro 700 jebac legie
 
 ## Deployment
 
+Lech mistrz polski
+
 ## How To Contribute
 
 
