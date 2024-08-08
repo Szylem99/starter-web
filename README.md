@@ -8,6 +8,8 @@ Sample website with plenty of files for demos
 
 ## Purpose
 
+Pozdro 700 jebac legie
+
 ## Deployment
 
 ## How To Contribute
