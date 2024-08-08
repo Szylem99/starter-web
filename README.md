@@ -12,9 +12,9 @@ Pozdro 700 jebac legie
 
 ## Deployment
 
-Lech mistrz polski
+Lech mistrz polski nasza duma wielkopolski
 
 ## How To Contribute
 
-Panie borze na motorze
+Panie borze na motorze. Cos 
 
