@@ -16,7 +16,7 @@ Lech mistrz polski nasza duma wielkopolski
 
 ## How To Contribute
 
-Panie borze na motorze. Cos 
+Panie borze na motorze. Cos sie zepsulo i nie bylo mnie slychac
 
 ## HABIBI TOP TOP
 
